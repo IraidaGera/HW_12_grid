@@ -1,1 +1,1 @@
-link to view [click hear](https://iraidagera.github.io//)
+link to view [click hear](https://iraidagera.github.io/HW_12_grid/)
